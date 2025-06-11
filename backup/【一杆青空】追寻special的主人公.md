@@ -1,7 +1,5 @@
 _不管观众如何定义，“废萌番”也好“猛男必看”也好，观看美少女加任意课外活动（兴趣爱好）题材的作品，已成为众多宅宅疗愈身心的方式。作为每季度准时寻找此类作品的宅宅，受到一杆青空清新的OP吸引，我带着对高尔夫一无所知的脑袋，看完了这部美少女打高尔夫的动画。_
 
-![Image](https://github.com/user-attachments/assets/63b92faa-0b36-4028-b3a9-b77d8dff572f)
-
 ![Image](https://github.com/user-attachments/assets/b6aed834-8d83-428c-9f84-d374cdd9fbfa)
 
 > “这样下去的话，就只能作为普通的村民A毕业了！”
